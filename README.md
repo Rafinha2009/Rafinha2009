@@ -1,0 +1,3 @@
+- 👋 olá me chamo rafaela
+- 🏫 sou do 1TAIA
+- 💞minha cor favorita é rosa
